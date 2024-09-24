@@ -1,0 +1,1 @@
+To se zrobisz jutro w robocie po robocie
